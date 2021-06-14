@@ -1,6 +1,10 @@
 hey ! I'm Edwin Chao, senior at East Brunswick High School and a prospective Rutgers University student.
 
-I am:
+Things about me:
+
+I enjoy eating food, watching anime, and having a good time with my friends. I love joking around the people I know well and making them laugh.
+
+Brag Sheet:
 
 A big-time gamer (Clash of Clans, Fortnite, Valorant)
 
@@ -8,7 +12,7 @@ Cellist (8 years of experience)
 
 Pianist (7 years of experience)
 
-you can reach me through my social media here:
+SOCIAL MEDIA:
 
 Discord: 
 aidaween#6061 
